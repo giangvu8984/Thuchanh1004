@@ -1,5 +1,5 @@
-Họ và tên: Tô Minh Hiếu
-Mã sinh viên: 23810310284
+Họ và tên: Vũ Trường Giang
+Mã sinh viên: 23810310293
 Thực hành 10-04-2026
 ![image](assets/z7712300883610_6ad20a37a71d655a02d6f01be5d77970.jpg)
 ![alt text](assets/z7712297732794_1c0a9a1bb0825071cd82b72716419162.jpg)
