@@ -7,5 +7,5 @@ Thực hành 10-04-2026
 ![alt text](assets/z7712297706982_954dedadf4cc3787227557f60e9dd5e8.jpg)
 ![alt text](assets/z7712297723237_d91b52109cf43b562e8ac64e76e5c3ed.jpg)
 ![alt text](assets/z7712297731899_88449c78dfdc63a44abc308edeaaecb3.jpg)
-![alt text](assets/z7712297750995_a2bdbb0ce50d605b0dd636f7f6085d8b.jpg)
-![alt text](assets/z7712297744938_88430d2e0721b7e02540733996417d61.jpg)
+![alt text](assets/z7712397219694_a533a58a36696a3f82b5c5324ea23774.jpg)
+![alt text](assets/z7712397219835_867815a7209a4bc26ad2960bbf4cf9c0.jpg)
